@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bejeri4
-- 👀 I’m interested in iOS, apps, mobile
+- 👀 I’m interested in iOS, apps, mobile, Blockchain, NFT.
 - 📫 How to reach me: karanadzelevan@gmail.com
 
 <!---
