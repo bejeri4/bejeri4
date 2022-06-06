@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bejeri4
+- 👋 Hi, I’m Levan
 - 👀 I’m interested in iOS, apps, mobile, Blockchain, NFT.
 - 📫 How to reach me: karanadzelevan@gmail.com
 
