@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Levan
-- 👀 I’m interested in iOS, apps, mobile, Blockchain, NFT.
+- 👀 I’m interested in iOS, apps, mobile, Blockchain, AI.
 - 📫 How to reach me: karanadzelevan@gmail.com
 
 <!---
